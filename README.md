@@ -6,4 +6,8 @@ In the past month, I have been making food at work, attending classes, and doing
 The three most important strategies for organizing work are keeping a planner or calendar, creating a "to do" list, and having specific areas for work and supplies.
 
 
-edit
+Megan Carpenter
+I'm a statistics major with a math minor.
+I work at a bank as a teller. I recently bought a house so I love hanging out there, and I have been busy decorating it.
+Three important strategies for me to orangize my work include; writing everything down, time managment, and having a tidy work space.
+
